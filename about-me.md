@@ -8,6 +8,9 @@ trying to add something new
 how to tackel changes to same on of code on local and remote file
 name : Sharleen Krislyn Gomes
 DOB: april 22, 1989
+love the summers in canada
+it so much fn to do all fun stuff outdoors during the summers
+i enjoy barbequing
 
 
 
