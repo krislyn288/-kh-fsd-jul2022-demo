@@ -12,5 +12,9 @@ love the summers in canada
 it so much fn to do all fun stuff outdoors during the summers
 i enjoy barbequing
 
+i like gardening
+my new interest is coding and computer science
+enjoy biking, jogging and anything that requires me to move
+but i also like lazy days
 
 

@@ -6,3 +6,8 @@ Git email: krislyn288@yahoo.com
 **************the end*****************
 # Scarborough, Ontario, M1w 3Z8, Canada
 
+Git email: krislyn288@rediffmail.com
+**************the end***************** pickering
+ajax
+goa, india, hello, 
+availability : weekends
