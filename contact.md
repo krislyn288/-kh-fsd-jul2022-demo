@@ -4,4 +4,7 @@ email: sharleen.gomes@mail.mcgill.ca
 github user name: krislyn288
 git name: krislyn288
 Git email: krislyn288@rediffmail.com
-**************the end*****************
+**************the end***************** pickering
+ajax
+goa, india, hello, 
+availability : weekends
