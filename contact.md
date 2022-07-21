@@ -15,3 +15,9 @@ availability : weekends
 Currently lives: Scarborough
 Hometown: India
 ***********************
+************************************
+# Goan
+Instagram
+Facebook
+Email
+**************************
