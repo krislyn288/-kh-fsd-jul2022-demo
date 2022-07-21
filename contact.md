@@ -11,3 +11,7 @@ Git email: krislyn288@rediffmail.com
 ajax
 goa, india, hello, 
 availability : weekends
+Work: Toronto
+Currently lives: Scarborough
+Hometown: India
+***********************
