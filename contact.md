@@ -11,3 +11,9 @@ Git email: krislyn288@rediffmail.com
 ajax
 goa, india, hello, 
 availability : weekends
+************************************
+# Goan
+Instagram
+Facebook
+Email
+**************************
